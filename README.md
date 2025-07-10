@@ -10,4 +10,4 @@
 
 本平台专注于永久免费AV网站SM调教类资源，涵盖免费看污又色又爽又黄又脏等内容，视频播放流畅，满足多样化观众的需求。
 
-<span style="display:none;">[Canonical link]()</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250710/haha19)</span>
